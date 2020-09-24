@@ -5,5 +5,7 @@
 
 [Arko](https://twitter.com/arkodyutisaha)📍 from Siliguri, India 
 
+![](![](https://media.giphy.com/media/9PgvV8ale90lQwfQTZ/giphy.gif)
 
+[Shuheb](https://www.linkedin.com/in/shuhebahmed/)📍 from England, UK
 
